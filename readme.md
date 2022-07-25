@@ -1,0 +1,1 @@
+I accept updates and tips to improve the project, feel free to talk about the project.
